@@ -1,4 +1,4 @@
-👋 Hi, I’m @AniolGarrigaTorra and I study Data Science and Engineering 
+👋 Hi, I’m @AniolGarrigaTorra and I studied Data Science and Engineering 
 
 👀 I'm always searching the way to apply my knowledge on improve the things that I like. 
 
