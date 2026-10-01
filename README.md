@@ -4,7 +4,7 @@
 
 🌱 I'm a mountain lover. Hike, climb, btt, canyoning, speleology... 
 
-⚡ I'm from a very little town from Pyrenees 
+⛰️ I'm from a very little town from Pyrenees 
 
 
 
